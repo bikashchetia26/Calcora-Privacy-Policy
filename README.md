@@ -1,4 +1,4 @@
-# Privacy Policy for Calcora (All-in-one Calculator).
+# Privacy Policy for Calcora (All-in-one Calculator)
 
 Last Updated: February 2026
 
